@@ -12,6 +12,6 @@
 
 ## Hecho por:
 
-###Ana García
+###Emanuel Aguilera
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/emanuel-aguilera-ing/
